@@ -4,5 +4,4 @@
 
 - 🔭🌱 I’m currently pursuing MSc Computer Science at IIITMK
 - 📫 How to reach me: parvathyhiyer@gmail.com
-- 😄 Pronouns: She/Her
 - ⚡ Fun fact: 🤔
